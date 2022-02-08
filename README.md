@@ -6,7 +6,7 @@
   -   mail: gabrieldias@gmail.com 
   -   discord: CatDealer#9505
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: once upon a time I was a professional photographer with a LLB
+- ⚡ Fun fact: once upon a time I was a professional photographer with a LLB or a Lawyer that was later a professional phtographer
 
 <div>
   <a href="https://github.com/gabdiasx">
